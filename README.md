@@ -5,11 +5,14 @@
 
 <p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
 
+**Hey there! 🌟 I thrive on engaging in fun activities and spreading positive energy wherever I go. While many see me as a cheerful socialite 😄, the truth is I have an introverted side that I keep under wraps 🤫. So, while I’m out enjoying life to the fullest 🎉, I also cherish those cozy moments of solitude 🛋️. It’s like I get to enjoy the excitement of the crowd while having my own little retreat when I need it! 🌈**
+
+
+
 - 📫 How to reach me **asavira.122140067@student.itera.ac.id**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1VI1zvDAG_2-Ewdii4FFVL17VUJ1i7iUG/view?usp=sharing](https://drive.google.com/file/d/1VI1zvDAG_2-Ewdii4FFVL17VUJ1i7iUG/view?usp=sharing)
 
-- ⚡ Fun fact **i think i'm introvert**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
