@@ -7,6 +7,7 @@
 
 
 - 📫 How to reach me **asavira.122140067@student.itera.ac.id**
+- my instagram <a href="https://www.instagram.com/asvrzhr_?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==">@asvrzhr</a>
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1VI1zvDAG_2-Ewdii4FFVL17VUJ1i7iUG/view?usp=sharing](https://drive.google.com/file/d/1VI1zvDAG_2-Ewdii4FFVL17VUJ1i7iUG/view?usp=sharing)
 
